@@ -1,1 +1,1 @@
-this card to show messages or like happy birthday..
+Add it to ur website to show message ❤
